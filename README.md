@@ -3,4 +3,4 @@ Hi, I`m betaincao.
 
 
 ## Hi there 👋
-I am Betain Cao! 
+I`m Betain Cao! 
